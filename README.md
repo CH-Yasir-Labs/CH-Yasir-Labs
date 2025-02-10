@@ -33,7 +33,7 @@ Whether you're looking to develop voice assistants or interactive applications, 
 Let’s collaborate and create user-friendly, efficient solutions that make a difference!
 
 
-Available for Help kind of help>>>>>>
+Available for Help >>>>>>
 
 
 
